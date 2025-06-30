@@ -1,4 +1,4 @@
-# easy-roblox-account-stealer-method
+# roblox account hacker method
 (THIS METHOD WORKS ONLY ON MICROSOFT EDGE)
 
 1. go to the roblox account you want to get into
